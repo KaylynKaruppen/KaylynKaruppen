@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KaylynKaruppen
-- 🌱 I’m currently learning Java
+- 🎓 I'm a 2nd year BSc Computer Science student
 
 
 
