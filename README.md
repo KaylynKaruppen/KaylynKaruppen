@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KaylynKaruppen
-- 🎓 I'm a 2nd year BSc Computer Science student
+- 🎓 I'm a 3rd year BSc Computer Science student
 
 
 
