@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KaylynKaruppen
-- 🎓 I'm a BSc Honours in Computer Science student at Wits
+- 🎓 I'm a BSc Honours in Computer Science graduate from Wits
 
 
 
